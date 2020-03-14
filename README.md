@@ -1,2 +1,0 @@
-# sundealll
-just a student
